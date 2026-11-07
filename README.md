@@ -1,7 +1,7 @@
 # 🌸 Garden of Lúmina
 > **Jogo de Terror Psicológico e Exploração**
 
-![Capa do Jogo](10F75EF1-C491-4337-BA45-B6CE9A2D0169.PNG)
+![Capa do Jogo](IMG_1247.jpeg)
 
 ---
 
